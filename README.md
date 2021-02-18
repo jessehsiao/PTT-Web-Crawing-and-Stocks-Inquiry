@@ -17,6 +17,6 @@
 ![](https://i.imgur.com/olEMnd3.jpg)
 
 
-** 加入好友 **
+**加入好友**
 https://liff.line.me/1645278921-kWRPP32q/?accountId=765risdb&openerPlatform=native&openerKey=talkroom%3Amessage
 
